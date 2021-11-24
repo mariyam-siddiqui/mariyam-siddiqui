@@ -8,6 +8,6 @@
 - How can you reach me? 
 -
 - Email: mariiyamsiddiquii@gmail.com
-- Instagram: @meowriyam
+- 
 
 
